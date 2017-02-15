@@ -1,2 +1,3 @@
 # hello-world
 just another repository
+Computer programing and engineering has been a lifelongdream for me, while in middle school i was sorely commited to the notion that i would one day have too much money to know what to do with had i entered such a field however the soul searching, phase inducing changes that highschool brought about aptly distracted me from my original plans and i began to dabble in other career options that unfortunately bore no success. upon reevaluation of my circumstances and stablization of my main aspirations i stumbled upon this conted program hosted by york college. the oppertunities presented with this program were simply too good to pass.
